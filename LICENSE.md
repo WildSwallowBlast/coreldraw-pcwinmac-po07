@@ -1,4 +1,4 @@
-# 
+# Lightweight CorelDRAW plugins for Mac OS | Top CorelDRAW plugins for PC Windows. Featuring grid-systems and PDF-export — optimized for maximum performance on every platform.
 
 
 
